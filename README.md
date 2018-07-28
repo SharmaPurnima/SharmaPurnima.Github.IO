@@ -1,1 +1,1 @@
-# Blogs by dynamic girl
+# Blogs by Dynamics Girl
