@@ -1,1 +1,1 @@
-# Blogs by Dynamics Girl
+http://Sharmapurnima.com
