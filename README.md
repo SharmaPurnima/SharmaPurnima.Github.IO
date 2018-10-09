@@ -1,1 +1,1 @@
-http://Sharmapurnima.com
+http://SharmaPurnima.com
